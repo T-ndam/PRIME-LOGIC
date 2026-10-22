@@ -1,1 +1,1 @@
-# JJTech
+# PRIME LOGIC
